@@ -1,7 +1,7 @@
 # Sébastien Petit, Assistant de direction
 
 ## À propos de moi
-Je suis très dévoué(e) et excellent(e) pour organiser les choses.
+je suis motivé à donner le meilleur de moi même
 
 ## Expérience
 
